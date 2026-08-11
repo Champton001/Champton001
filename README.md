@@ -1,9 +1,9 @@
-## Hi there 👋
+## Chasity Hampton
 
 <!--
 **Champton001/Champton001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Hi I'm Chasity I wear multiple hats I'm a soldier, a seamstress/embroidery specialist , and an over eager leaner. I am building toward a better future and growing by learning new things.
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
