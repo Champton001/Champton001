@@ -1,5 +1,8 @@
 ## Chasity Hampton
 
+Hi I'm Chasity I wear multiple hats I'm a soldier, a seamstress/embroidery specialist , and an over eager leaner. I am building toward a better future and growing by learning new things.
+
+
 <!--
 **Champton001/Champton001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
